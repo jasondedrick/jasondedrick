@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi There, Howdy, Moikka 🇫🇮 ! I'm Jason 👋
 
 <!--
 **jasondedrick/jasondedrick** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
